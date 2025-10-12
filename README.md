@@ -6,3 +6,7 @@
 - 👋 Handshake Domains - Email :)  
 -       -- Also personal goal for me is to learn and improve daily!! Always open to any and all suggestions.. Cronstructive critism.. And/or new business opportunies...
 -         ---- Lets make an app or chatbot  - lets partner up and become the next fruit ninjas!   
+
+
+
+Prompt: rewrite to sound less Gheey and make more interesting and funny.  
