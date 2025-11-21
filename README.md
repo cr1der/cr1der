@@ -1,12 +1,7 @@
 - 👋 Hi, I’m @cr1der
-- 👀 I’m interested in tech and all things marketing.
-- 🌱 I’m currently learning anything AI & to wipe my own ass! 
-- 💞️ I’m looking to collaborate on CBM/SBM/ABM - ECOM STORES - AI APPS/WEBSITES -  
-- 📫 How to reach me - Tap heels together 3x 
-- 👋 Handshake Domains - Email :)  
--       -- Also personal goal for me is to learn and improve daily!! Always open to any and all suggestions.. Cronstructive critism.. And/or new business opportunies...
--         ---- Lets make an app or chatbot  - lets partner up and become the next fruit ninjas!   
-
-
-
-Prompt: rewrite to sound less Gheey and make more interesting and funny.  
+- 👀 I’m interested in Ai, N8n, & MCP oh my. 
+- 🌱 I’m currently learning anything & to wipe my own ass! 
+- 💞️ I’m looking to collaborate on CBM/SBM/ABM - Thumb Wars - AI - APPS/WEBSITES - Crypto - Scams - My Epic TikTok Hustle @ www.Meth.Sale  
+- 📫 How to reach me - Tap heels together 3x                                                           M    E    T    H .You
+-                                                                                                        M    E    T     H .Town
+- iEatAss.to | Uran.us.com 
