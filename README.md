@@ -1,8 +1,9 @@
-- 👋 Hi, I’m @cr1der
-- 👀 I’m interested in Ai, N8n, & MCP oh my. 
-- 🌱 I’m currently learning anything & to wipe my own ass! 
-- 💞️ I’m looking to collaborate on CBM/SBM/ABM - Thumb Wars - AI - APPS/WEBSITES - Crypto - Scams - My Epic TikTok Hustle @ www.Meth.Sale  
-- 📫 How to reach me - Tap heels together 3x                                                           M    E    T    H .You
-                                                                                                    M    E    T     H .Town
-- iEatAss.to | Uran.us.com 
-   
+<!-- ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ -->
+<!--           ON GANG, We Bang..          -->
+<!-- ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ -->
+
+<!-- https://drive.proton.me/urls/M5A8PZMHNW#vh6PTsEuylFA -->
+
+<!-- ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ -->
+<!--         DOPEDICK.IO            ale       -->
+<!-- ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ -->
